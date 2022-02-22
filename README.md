@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Phung Danh Chi Vi.
-- 🌱 I’m currently studying at HSGS Nguyen Hue - HaNoi.
+- 🌱 I’m currently studying at HSGS Nguyen Hue - Ha Noi.
 + Email: vidut2006scolt@gmail.com
 + Facebook: https://www.facebook.com/vidut206CNH/
 
